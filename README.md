@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **madhuchhandadasofficialacc@gmail.com**
 
-- 📄 Know about my experiences [madhuchhandadas-madintech](www.linkedin.com/in/madhuchhandadas-madintech)
+- 📄 Know about my experiences [www.linkedin.com/in/madhuchhandadas-madintech] (www.linkedin.com/in/madhuchhandadas-madintech)
 
 - ⚡ Fun fact **I find peace in chaos!**
 
